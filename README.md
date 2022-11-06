@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Aditya Kumar
+- 👀 I’m interested in Coding and explore about new things.
+- 🌱 I’m currently studying
+- 📫 How to reach me :- whatsap +919708268593
